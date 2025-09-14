@@ -1,6 +1,6 @@
 Privacy Policy for iRefFoos
 
-Effective Date: September 3, 2025
+Effective Date: September 13, 2025
 
 1. Introduction
 
